@@ -1,3 +1,3 @@
 # Dream-Home
 
-https://naimahassan43.github.io/dream-home/
+https://naimahassan43.github.io/Dream-Home/
